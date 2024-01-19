@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to make roblox games
 - 💞️ I’m looking to collaborate on some roblox games
 - 📫 How to reach me my email or my phone number
-- 😄 Pronouns: he/him
+- 😄 Pronouns: he/him/his
 - ⚡ Fun fact: Bats are the only mammal that can actually fly.
 
 ![2c1c836b3d40a12b0811b1ebf63b309f](https://github.com/HonourMoses/HonourMoses/assets/156215902/208d267e-bddc-4c6e-b7e9-7576362631d3)
